@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @tonyportugal
+- I’m interested in optmizing mobile and web consumer products
+- I’m looking to collaborate on ways to improve product monetization
+- 📫 You can reach me at tportugal@live.com
